@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Finevera
 - 👀 I’m interested in web designs 
 - 🌱 I’m currently learning creation of websites 
-- 💞️ I’m looking to collaborate on web sites 
+- 💞️ I’m looking to collaborate with people 
 - 📫 How to reach me Email Aaerickson3@gmail.com
 
 <!---
